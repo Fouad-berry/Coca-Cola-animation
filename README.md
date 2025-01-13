@@ -1,3 +1,3 @@
 ## Contribute
-If you want to contribute to the project , follow us.
+All contibution are accepted
 Thanks you all for the support
