@@ -3,4 +3,5 @@ All contibution are accepted
 Thanks you all for the support !
 
 ## INFORMATION
-We'll drop another features at soon!
+We will drop another features at soon!
+Keep us close !
