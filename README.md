@@ -4,4 +4,4 @@ Thanks you all for the support !
 
 ## INFORMATION
 We will drop another features at soon!
-Keep us close !
+Keep close of us !
