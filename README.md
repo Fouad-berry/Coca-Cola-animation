@@ -3,4 +3,4 @@ All contibution are accepted
 Thanks you all for the support !
 
 ## Features
-Another features are coming
+Another features are coming !
